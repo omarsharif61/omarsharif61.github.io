@@ -1,2 +1,1 @@
-# omarsharif61.github.io
-Omar Sharif Retreats website
+# Here are your Instructions
